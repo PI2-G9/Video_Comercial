@@ -1,7 +1,5 @@
 # Video_Comercial
 
-# Video_Comercial
-
 
 Link para vídeo do comercial da SmartDoor realizado pelo Grupo 9:
 
